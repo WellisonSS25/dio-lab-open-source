@@ -37,4 +37,3 @@
 ## 😄 Vamos colaborar!
 
 Se você chegou até aqui, bora se conectar! 🚀
-
